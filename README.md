@@ -13,4 +13,4 @@ eduardo.jaros@escola.pr.gov.br
 
 
 
-![](https://tenor.com/view/puppet-awkward-looking-what-side-eye-gif-15476992)
+https://tenor.com/view/puppet-awkward-looking-what-side-eye-gif-15476992
