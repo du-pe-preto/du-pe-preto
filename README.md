@@ -13,4 +13,4 @@ eduardo.jaros@escola.pr.gov.br
 
 
 
-![](https://media.tenor.com/_4IR11L8Ks8AAAAd/fat-guy-fat-gainer.gif)
+![](https://tenor.com/view/puppet-awkward-looking-what-side-eye-gif-15476992)
